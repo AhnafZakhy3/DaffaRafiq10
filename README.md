@@ -1,6 +1,6 @@
 # 👋 Halowwwww, saya DaffaRafiq10!
 
-Halooo selamat datang di akun saya, tolong jangan bully saya karena saya masih oemula
+Halooo selamat datang di akun saya, tolong jangan bully saya karena saya masih oemula (siap bang)
 
 ## 📌Tentang Saya
 - 🌱 Saya suka eksplorasi dunia IT
